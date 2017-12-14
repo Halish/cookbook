@@ -5,5 +5,5 @@ snips and tails and puppy dog tails.
 
 Not to self: Got poisoned
 
-new day, im feeling lucky 
+new day, im feeling lucky, Turns out you need to leave the skin on.. 
  
